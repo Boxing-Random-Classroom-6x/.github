@@ -4,6 +4,8 @@
 
 **Boxing Random** is a **crazy 2-player fighting game** where every match is unpredictable! With **hilarious ragdoll physics**, **random environments**, and **wild punches**, each round delivers a different kind of chaos. Whether you're jumping mid-air or fighting with one giant glove, this game keeps you laughing and smashing your way to victory!
 
+## <a href="https://1kb.link/WZAHjG">👉 Play Boxing Random Unblocked Games 👈</a>
+
 ---
 
 ### 🚀 Game Features
